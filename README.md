@@ -16,11 +16,3 @@
 ![Voya](https://onecms-res.cloudinary.com/image/upload/s--AOyOk_fR--/f_auto,q_auto/c_fill,g_auto,h_622,w_830/v1/tdy-migration/000_9jk62p.jpg?itok=5JQGQUJk)
 
 ### Table tennis has been an Olympic sport since 1988,with event categories in both men's and women's singles, and men's and women's teams since replacing doubles in 2008.
----- 
-### Contact Info:
-&nbsp; &nbsp; &nbsp; &nbsp;
-Contact
- **63 992 326 7938**
-&nbsp; &nbsp; &nbsp; &nbsp;
-Email
- **pmanlangit@gbox.adnu.edu.ph**
